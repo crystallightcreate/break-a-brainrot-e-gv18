@@ -1,4 +1,4 @@
-# 
+# Experience be a lucky block like never before with premium be a lucky block Script, the #1 Script. Includes god mode and auto-farm for unbeatable
 
 
 
